@@ -1,6 +1,6 @@
 # Welcome to the Realm of Mr. Dr
 
-![Mr. Dr](https://github.com/[YourUsername]/[YourRepo]/raw/main/images/shadow-lord.png)
+![Mr. Dr](https://github.com/xMrDrx/xMrDrx/blob/main/photo_5931477422530741236_x.jpg)
 > *A silhouette carved from midnight, whispering secrets to the void.*
 
 ---
